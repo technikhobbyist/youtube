@@ -3,6 +3,8 @@
 YouTube Shorts Video über die Befestigung zweier fester Kamerawinkel für meine YouTube Videos.
 
 🎥 [Zum Video: Feste Kamerawinkel schnell gemacht](https://www.youtube.com/shorts/upg-tkKPtoE)
+[![Feste Kamerawinkel schnell gemacht](https://img.youtube.com/vi/upg-tkKPtoE/maxresdefault.jpg)](https://www.youtube.com/shorts/upg-tkKPtoE)
+
 
 ## Verwendete Produkte
 
