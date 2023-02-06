@@ -12,3 +12,4 @@ YouTube Shorts Video über die Befestigung zweier fester Kamerawinkel für meine
 * [ULANZI VL81 Videoleuchte](https://amzn.to/3wXnUSI)
 
 Affiliate-Links. Euch entstehen keine Kosten, keine Nachteile.
+Ihr unterstützt damit aber den Kanal. <3
