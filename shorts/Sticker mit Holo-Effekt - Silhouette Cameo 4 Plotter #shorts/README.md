@@ -2,8 +2,8 @@
 
 Ich stelle einen Sticker mit Holo-Effekt mittels Silhouette Cameo 4 Plotter für meine selbst gemachten Würfel her.
 
-🎥 [Zum Video: Sticker mit Holo-Effekt - Silhouette Cameo 4 Plotter #shorts](https://www.youtube.com/shorts/Ib6ME1R3hlI)
-[![Sticker mit Holo-Effekt - Silhouette Cameo 4 Plotter #shorts](https://img.youtube.com/vi/Ib6ME1R3hlI/maxresdefault.jpg)](https://www.youtube.com/shorts/Ib6ME1R3hlI)
+🎥 [Zum Video: Sticker mit Holo-Effekt - Silhouette Cameo 4 Plotter #shorts](https://www.youtube.com/shorts/_s42C3l4ckM)
+[![Sticker mit Holo-Effekt - Silhouette Cameo 4 Plotter #shorts](https://img.youtube.com/vi/_s42C3l4ckM/maxresdefault.jpg)](https://www.youtube.com/shorts/_s42C3l4ckM)
 
 
 ## Verwendete Produkte
