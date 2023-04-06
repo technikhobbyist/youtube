@@ -1,6 +1,7 @@
 # Master Würfel Set 3D drucken und nachbehandeln - Würfel selbst machen Teil 1
 
-Ich stelle euch meinen Druckbehälter für das Gießen von Epoxidharz vor und zeige euch wie ihr damit perfekte Ergebnisse erzielen könnt und worauf zu achten ist.
+Lerne, wie man ein Master Würfel Set mit 3D-Druck und Nachbehandlung herstellt, um später Silikonformen für das Gießen von Würfeln aus Epoxidharz zu erstellen.
+Dies ist der erste Teil einer Video Reihe in der ich zeige, wie man seine eigenen Würfel Sets herstellt, die man zum Beispiel für Dungeons and Dragons (DnD), Das Schwarze Auge (DSA), Magic the Gathering oder andere Spiele in denen man mehrere verschiedene Würfel wie W6, W20 oder andere benötigt.
 
 🎥 [Master Würfel Set 3D drucken und nachbehandeln - Würfel selbst machen Teil 1](https://www.youtube.com/watch?v=_ufrtN8gBzw)
 [![Master Würfel Set 3D drucken und nachbehandeln - Würfel selbst machen Teil 1](https://img.youtube.com/vi/_ufrtN8gBzw/maxresdefault.jpg)](https://www.youtube.com/watch?v=_ufrtN8gBzw)
